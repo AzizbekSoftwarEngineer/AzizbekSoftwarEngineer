@@ -1,2 +1,3 @@
 - 👋 Assalamu alaykum, I’m Azizbek
--  💼 I'm Software engineer
+- 💼 I'm Software engineer
+- 📲 t.me: https://t.me/azizbeksoftwarengineer
