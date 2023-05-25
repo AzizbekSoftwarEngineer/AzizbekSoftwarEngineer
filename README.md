@@ -1,0 +1,2 @@
+- 👋 Assalamu alaykum, I’m Azizbek
+-  💼 I'm Software engineer
